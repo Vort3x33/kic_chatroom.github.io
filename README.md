@@ -32,6 +32,7 @@
 *Hinweis: Es kann ein paar Minuten dauern, bis deine Seite online ist.*
 
 
+Meine Chatseite: https://vort3x33.github.io/kic_chatroom.github.io/
 
 
 
